@@ -1,0 +1,6 @@
+- Almond Milk
+- Ground Coffee
+- Fruit - Fresh
+- Hand Soap
+- Coconut Water
+- Beignets
